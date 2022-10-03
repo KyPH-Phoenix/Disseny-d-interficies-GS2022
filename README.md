@@ -1,1 +1,0 @@
-# Disseny-d-interficies-GS2022
